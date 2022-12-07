@@ -27,3 +27,4 @@ TJM : Selon profil
 
 Format : 3J remote et 2 jours de présentiels
 
+Processus d’entretien : https://calendly.com/ededryver/echange-telephonique-cgi-projets-veille-market
